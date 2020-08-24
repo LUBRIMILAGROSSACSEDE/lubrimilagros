@@ -134,4 +134,4 @@ Migracion Jira-Issues(Gitlab): [Guía](https://docs.google.com/document/d/156wEG
 
 [facturaloperu.com](http://facturaloperu.com "Clic")<br>
 soporte@facturaloperu.com<br>
-wsapp: 930 973 902<br>
+wsapp: 929 302 935<br>
